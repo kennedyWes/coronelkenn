@@ -13,7 +13,7 @@
 
 - 📫 Você me encontra aqui **kennedy.wesleyk@gmail.com**
 
-- 📄 Sobre as minhas experiências: [https://www.linkedin.com/in/wesley-kennedy?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3Buu%2BWn9XyQSyyIRNRd5NZfA%3D%3D](https://www.linkedin.com/in/wesley-kennedy?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3Buu%2BWn9XyQSyyIRNRd5NZfA%3D%3D)
+- 📄 Sobre as minhas experiências: https://www.linkedin.com/in/wesley-kennedy
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
